@@ -18,6 +18,7 @@ I used to play spoken word/istrumental with an old friend of mine.
 Instead using a digital camera for photography I'm using two film cameras, Canon AE1 & Canon AE1-Program.
 Photographic films bring me to my childhood, there is something magic in them.
 
+I'm also fascinated by space.
 ---
 
 #### Education
